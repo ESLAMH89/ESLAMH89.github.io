@@ -1,1 +1,1 @@
-suquraldamaam.me
+www.suquraldamaam.me
